@@ -1,0 +1,1 @@
+# UAS-Artificial_Intelegence-Muhamad_Fajri_Permana_Haryanto-20220801439
